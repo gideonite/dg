@@ -6,6 +6,8 @@
 
 **Jan. 25, 2023**
 
+*[Attention conservation notice](http://www.viridiandesign.org/notes/1-25/Note%2000002.txt): Rough notes written up on trains and subways -- personal and cryptic for just about everyone.*
+
 [[Uncategorized/Polyannish\|Polyannish]] view of human nature
 
 Nonviolence: How do you have a revolution without the negative after sentiment? How do you avoid the counterrevolution? The Thermidor.
