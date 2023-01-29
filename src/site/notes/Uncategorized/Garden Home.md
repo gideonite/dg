@@ -3,6 +3,4 @@
 ---
 
 
-Hello world
-
 [[Uncategorized/Brandon Terry interview\|Brandon Terry interview]]
