@@ -8,9 +8,7 @@
 
 **Jan. 25, 2023**
 
-[[Uncategorized/Attention Conservation Notice\|Attention conservation notice]]:
-
-*[Attention conservation notice](http://www.viridiandesign.org/notes/1-25/Note%2000002.txt): Rough notes written up on trains and subways -- personal and cryptic for just about everyone.*
+*[[Uncategorized/Attention Conservation Notice\|Attention conservation notice]]: Rough notes written up on trains and subways -- personal and cryptic for just about everyone.*
 
 [[Uncategorized/Polyannish\|Polyannish]] view of human nature
 
