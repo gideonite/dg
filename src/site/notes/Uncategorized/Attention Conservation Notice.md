@@ -6,4 +6,4 @@
 
 --- [http://www.viridiandesign.org/notes/1-25/Note%2000002.txt](http://www.viridiandesign.org/notes/1-25/Note%2000002.txt)
 
-First ran into this on Cosma Shalizi's blog: [bactra.org](https://bactra.org)
+First ran into this on Cosma Shalizi's blog: [bactra.org](http://bactra.org)
