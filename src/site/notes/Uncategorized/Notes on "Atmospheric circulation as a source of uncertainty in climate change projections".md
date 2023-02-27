@@ -4,8 +4,6 @@
 
 #climate-science #notes 
 
-Feb. 27, 2023 18:02
-
 *[[Uncategorized/Attention Conservation Notice\|Attention Conservation Notice]]: This is literally the first real scientific article I've read about climate change so I probably understand nothing or worse, I think I understand but actually don't.*
 
 [link](https://www.nature.com/articles/ngeo2253)
